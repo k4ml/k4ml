@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-These days I spent most of the time lepaking at these places:-
+These days I spent most of the time sharing my thought at these places:-
 
 - https://dev.to/k4ml
 - https://kamal.koditi.my
